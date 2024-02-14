@@ -10,4 +10,4 @@ Thank you for visiting my profile and supporting my work.
 
 I look forward to sharing more amazing projects with you in the future!
 
-[!["Buy Me A Coffee"](https://www.buymeacoffee.com/assets/img/custom_images/orange_img.png)]([https://www.buymeacoffee.com/gbraad](https://www.buymeacoffee.com/craftsmanm7)https://www.buymeacoffee.com/craftsmanm7)
+[!["Buy Me A Coffee"](https://www.buymeacoffee.com/assets/img/custom_images/orange_img.png)](https://www.buymeacoffee.com/craftsmanm7)
